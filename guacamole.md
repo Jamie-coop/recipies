@@ -2,7 +2,7 @@
 
 ## Ingredients
 * avocado: £1.50
-* lime: £0.40
+* lemon: £0.40
 * salt: £0.01
 ## Instructions
-An ill-considered change 
+Make guacamole and serve. 
