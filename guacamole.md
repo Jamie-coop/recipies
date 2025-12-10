@@ -5,4 +5,4 @@
 * lime: £0.40
 * salt: £0.01
 ## Instructions
-An ill-considered change 
+mash acacdo and add lime and salt to taste. 
